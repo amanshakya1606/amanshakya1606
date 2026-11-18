@@ -16,4 +16,7 @@ I build AI agents that do the day-to-day marketing work: Instagram content and e
 Brand building · Websites · E-commerce · Meta, Google and LinkedIn ads · SEO and local SEO · Export marketing · CRM and AI automation · WhatsApp marketing
 
 ### Find me
-Instagram: [@scalvyadigital](https://www.instagram.com/scalvyadigital/)
+- Instagram (personal): [@amann_shakya](https://www.instagram.com/amann_shakya)
+- Instagram (agency): [@scalvyadigital](https://www.instagram.com/scalvyadigital/)
+- LinkedIn: [Aman Shakya](https://www.linkedin.com/in/aman-shakya-1b6699375)
+- LinkedIn (company): [Scalvya Digital](https://www.linkedin.com/company/scalvya-digital/)
